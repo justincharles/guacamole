@@ -3,10 +3,10 @@
 **Contents**
 >* Avocados (number varies depending on how many people you're serving, everything else is to taste in proportion to the these)
 >* Lime
->* Salt
+>* Salt (I like fine sea salt)
 >* Red Onion
->* Cilantro
->* Serrano Peppers
+>* Cilantro (an excessive amount)
+>* Serrano Peppers (start with one, add enough to get a good kick)
 >* Tomatoes (these go in last)
 
 **A word about garlic:** 
